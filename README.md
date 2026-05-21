@@ -6,3 +6,9 @@
 
 ## 寝る時間
 ―３：００
+
+## 好きなこと
+- Dance
+- food
+- photo
+- anime
